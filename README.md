@@ -1,1 +1,0 @@
-# Irrigation_System_Image
